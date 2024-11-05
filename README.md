@@ -10,4 +10,3 @@
 - 📫 How to reach me: telegram @lacruas
 - 😄 Pronouns: He| Him
 - ⚡ Fun fact: I was an actor when I lived in Los Angeles =)
--->
