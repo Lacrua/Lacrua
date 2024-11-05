@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 Look inside to get more!
 
 <!--
 **Lacrua/Lacrua** is a ✨ _special_ ✨ repository
